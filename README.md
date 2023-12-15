@@ -1,0 +1,1 @@
+# indiviadual.github.io
